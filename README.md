@@ -2,7 +2,7 @@
 - 👀 I’m interested in it jobs
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on instagram@m_.rocky
+- 📫 How to reach me on linkdIn = vivek kumar
 - ⚡ Fun fact: life is a puzzle which cant be solved by anyone
 
 <!---
